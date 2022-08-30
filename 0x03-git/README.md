@@ -1,1 +1,1 @@
-we are one
+let us work together
